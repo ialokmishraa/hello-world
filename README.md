@@ -2,4 +2,4 @@
 
 Hello Humane!
 
-Alok here, I like Coding and i love playing games and sports ;)  
+Alok here, I like Coding and love playing games and sports ;)  
